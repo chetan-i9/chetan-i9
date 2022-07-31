@@ -11,4 +11,4 @@ Languages and Tools learning currently-
 ![download](https://user-images.githubusercontent.com/98551496/151661832-dbcba4fe-bc54-4c79-864b-a581896e0acc.png)
 ![download](https://user-images.githubusercontent.com/98551496/151661896-92c00f53-468f-4e8e-905f-e2a45bcc6cac.png)
 ![download](https://user-images.githubusercontent.com/98551496/151661906-f74dcea3-9829-40d5-aef5-5a41471993f9.png)
-![download](https://user-images.githubusercontent.com/98551496/151661943-77b4e7b2-d802-45cb-9e53-d0e426b8b2cb.png)
+![download](https://user-images.githubusercontent.com/98551496/182043419-52b031c0-6047-4591-8411-3948d3e79553.png)
